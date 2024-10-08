@@ -1,5 +1,5 @@
 ## Hello, My Friend 👋😉
-###  ☺️☺️☺️ This is MaRtinZiii. ☺️☺️☺️
+###  ☺️☺️☺️ This is MaJi. ☺️☺️☺️
   
 + 💻 A humble and ordinary Otaku male college student who live today.
 + 😀 Hobbies include watching movies, playing games, and playing table tennis.
